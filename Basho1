@@ -1,3 +1,7 @@
 Ah me! I am one
 who spends his little breakfast
 Morning-glory gazing
+
+Swallow in the dusk
+spare my little buzzing friends
+Among the flowers
